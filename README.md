@@ -1,3 +1,3 @@
-# Ok https://1v1.school/
+# Run 1v1.lol on your laptop DOWNLOAD!!
 Ok
 
